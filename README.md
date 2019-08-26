@@ -2,11 +2,11 @@
 
 ## 科幻
 
-1、三体1-地球往事 - 刘慈欣 :+1::+1:
+1、三体1-地球往事 - 刘慈欣 :+1::+1:     [有声书](https://pan.baidu.com/s/1B9XX93q6-b_C8b8AvQYtKQ)
 
-2、三体2-黑暗森林 - 刘慈欣:+1::+1:
+2、三体2-黑暗森林 - 刘慈欣:+1::+1:      [有声书](https://pan.baidu.com/s/1drHl6ysm2ZQRUasBB4GJjQ)
 
-3、三体3-死神永生 -刘慈欣:+1::+1:
+3、三体3-死神永生 -刘慈欣:+1::+1:       [有声书](https://pan.baidu.com/s/1G3lYkLJ_spLOOdpeJ-cOwA)
 
 4、流浪地球 - 刘慈欣:+1:
 
