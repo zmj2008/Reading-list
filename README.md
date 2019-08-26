@@ -44,7 +44,7 @@
 
 4、Github漫游指南
 
-5、自学是门手艺-李笑来
+5、[自学是门手艺-李笑来](https://github.com/selfteaching/the-craft-of-selfteaching/tree/master/markdown)
 
 
 ## 生活
