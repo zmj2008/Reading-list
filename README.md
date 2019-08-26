@@ -67,7 +67,7 @@
 
 ## 小说
 
-1、长安十二时辰:+1:
+1、长安十二时辰:+1:[音频](https://pan.baidu.com/s/1VAcfKqZAA0ERP42jbA6i0w)
 
 ## 历史
 
