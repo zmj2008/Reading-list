@@ -42,7 +42,10 @@
 
 3、[新零售的未来 -  翁怡诺](https://www.lanzous.com/i59r8nc)
 
-4、Github漫游指南:+1:
+4、Github漫游指南
+
+5、自学是门手艺-李笑来
+
 
 ## 生活
 
